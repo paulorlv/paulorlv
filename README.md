@@ -2,16 +2,17 @@
 
 ##### Entre las herramientas y tecnologías con las que he podido trabajar están:
 
-✔️Python  ✔️MySQL                ✔️Power BI ✔️Docker
-✔️Excel     ✔️Microsoft Fabric  ✔️C ++      ✔️JavaScript
+###### ✔️Python  ✔️MySQL                ✔️Power BI ✔️Docker
+###### ✔️Excel     ✔️Microsoft Fabric  ✔️C ++      ✔️JavaScript
 
 ##### Me considero una persona muy puntual⌚, empática, tolerante, con dotes de liderazgo, buen trabajo en equipo y una capacidad de adaptación rápida.
 
 ##### Fuera del ámbito laboral, me encanta hacer deporte⚽, la gastronomía🍝 y aprender sobre cultural general.
 
-### ¡Espero conocerte pronto y explorar nuevas oportunidades juntos! 🚀
+#### ¡Espero conocerte pronto y explorar nuevas oportunidades juntos! 🚀
 
 📞+5491170185676
 📩romariov95lara@gmail.com
+
 [Visita mi linkedin](https://www.linkedin.com/in/paulo-lara-vel%C3%A1squez-43807319a/)
 
