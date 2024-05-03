@@ -10,3 +10,6 @@
 ##### Fuera del ámbito laboral, me encanta hacer deporte⚽, la gastronomía🍝 y aprender sobre cultural general.
 
 ### ¡Espero conocerte pronto y explorar nuevas oportunidades juntos! 🚀
+
+[Visita mi linkedin](https://www.linkedin.com/in/paulo-lara-vel%C3%A1squez-43807319a/)
+[Whatsapp](+541170185676)
