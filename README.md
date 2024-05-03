@@ -11,5 +11,7 @@
 
 ### ¡Espero conocerte pronto y explorar nuevas oportunidades juntos! 🚀
 
+📞+5491170185676
+📩romariov95lara@gmail.com
 [Visita mi linkedin](https://www.linkedin.com/in/paulo-lara-vel%C3%A1squez-43807319a/)
-[Whatsapp](+541170185676)
+
